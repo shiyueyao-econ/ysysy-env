@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ysysy-env
+- 👀 I’m interested in environmental and resource economics, climate economics, and applied econometrics.
+- 🌱 I’m currently studying environmental policy impact evaluation, and integrated assessment modeling in climate change mitigation.
+- 📫 How to reach me:  1yaoshiyue@gmail.com
